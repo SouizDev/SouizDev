@@ -21,8 +21,9 @@ Hello, my name is **Souiz** ,
 
 **Portfolio** [souiz.me](https://souiz.me)
 
-**Instagram:** [x2_69x/](https://www.instagram.com/x2_69x/)
-
 **Tiktok:** [souiz.me](https://www.tiktok.com/@souiz.me)
+
+**Instagram:** [x2_69x](https://www.instagram.com/x2_69x/)
+
 
 
