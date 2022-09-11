@@ -13,6 +13,6 @@ Hello, my name is **Souiz** ,
 
 3- **Shorts montage**
 
-<img src= "https://cdn.discordapp.com/attachments/999908415524573256/1009867363329511495/SoUlz-banner-about-me.png"> 
+<img src= "https://cdn.discordapp.com/attachments/999908415524573256/1009867363329511495/SoUlz-banner-about-me.png" width: 10px> 
 
 
