@@ -15,4 +15,10 @@ Hello, my name is **Souiz** ,
 
 ## Social media links
 
-Discord Server: [discord server](https://discord.gg/souiz-design) 
+**Discord Server:** [Souiz.design](https://discord.gg/souiz-design) 
+**Discord Username:** [Souiz#0026](https://discord.gg/souiz-design](https://discord.com/users/779536788058013697) 
+**Portfolio** [souiz.me](https://souiz.me) 
+**Instagram:** [x2_69x/](https://www.tiktok.com/@souiz.me](https://www.instagram.com/x2_69x/) 
+**Tiktok:** [souiz.me]( https://www.tiktok.com/@souiz.me) 
+
+
