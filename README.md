@@ -25,5 +25,7 @@ Hello, my name is **Souiz** ,
 
 **Instagram:** [x2_69x](https://www.instagram.com/x2_69x/)
 
+**E-mail:** <a href="mailto:contact@souiz.me">contact@souiz.me</a>  
+
 
 
