@@ -13,6 +13,9 @@ Hello, my name is **Souiz** ,
 
 3- **Shorts montage**
 
+## Discord Status
+[![Discord Presence](https://lanyard.cnrad.dev/api/779536788058013697)](https://discord.com/users/779536788058013697)
+
 ## Social media links
 
 **Discord Server:** [Souiz.design](https://discord.gg/souiz-design)
